@@ -7,7 +7,7 @@
 
 - Website：[凸凸官方网站](https://www.tutuos.com)
 
-- Wechat：[轻击此处](https://bucket-tutu-oss.yaqian.hk/wechat.png)
+- Wechat：[轻击此处](https://bucket-tutu-oss.yaqian.hk/Wechat.jpg)
 
 - QQ频道：[凸凸网络工作室](https://qun.qq.com/qqweb/qunpro/share?_wv=3&_wwv=128&inviteCode=Hm4E0&from=246610&biz=ka)
 
